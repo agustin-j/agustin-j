@@ -10,8 +10,8 @@
 > #### LANGUAGES
 + Spanish - Native
 + English - C1
-+ French - A1 (Learning)
-+ Chinese - HSK 2 (Learning)
++ French - B1 (Learning)
++ Chinese - HSK 3 (Learning)
 
 > #### CONTACT INFO
 + Mail: <agus.extrabusiness@gmail.com>
